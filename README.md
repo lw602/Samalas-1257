@@ -1,6 +1,6 @@
 ## Constraining the Samalas 1257 Eruption: A Model and Multi-Proxy Approach
 
-### Part III Project - Laura Wainman - Department of Earth Sciences, Univeristy of Cambridge
+### Part III Project - Department of Earth Sciences, Univeristy of Cambridge
 
 #### Correspondence to lw602@cam.ac.uk
 
